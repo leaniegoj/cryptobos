@@ -1,3 +1,3 @@
 # cryptobos
 cryptobos
-         !
+НОЯБРЬ
